@@ -1,2 +1,3 @@
 git is a free software
-¹ş¹ş
+å“ˆå“ˆ
+ä¿®æ”¹äº†ç¼–ç 
